@@ -7,6 +7,3 @@ Beaufort
 Comté
 Brebis
 Saint-nectair
-Babybel??
-
-Mais aussi du PARMESAN et du GRUYERE!!!!!!!!!!!!
